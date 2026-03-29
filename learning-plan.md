@@ -11,3 +11,7 @@ avoiding things.
 - Time: I wish to allocate 2 hr/day on weekdays and 5hrs/day on weekends. 
 
 And with this I start my journey of unlearning wrong concepts, learning the right once, and building a skill set!!!
+
+PS: I planned to start it on 1st April, but then I though shubh kaam mein deri kaisi! so starting it on 29th April itself
+
+NOTE: I am following TWS course for this
